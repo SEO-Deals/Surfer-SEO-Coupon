@@ -40,25 +40,25 @@ Follow these **simple steps** to claim your discount and start optimizing your w
 
 **Step 1: Visit the Official Surfer SEO Website**
 
-    Navigate to the [Surfer SEO pricing page](https://surferseo.com/).
+*  Navigate to the [Surfer SEO pricing page](https://surferseo.com/).
 
 ![Surfer SEO Homepage](https://github.com/SEO-Deals/Surfer-SEO-Coupon/blob/main/Img/3%20-%20%20Surfer%20SEO%20Homepage.png)
 
 **Step 2: Choose Your Plan**
 
-    Select an annual plan to get **20% off**.
+*   Select an annual plan to get **20% off**.
 
 ![Surfer SEO Pricing](https://github.com/SEO-Deals/Surfer-SEO-Coupon/blob/main/Img/4%20-%20%20Surfer%20SEO%20Pricing.png)
 
 **Step 3: Apply Coupon Code (If Required)**
 
-    Some discounts **apply automatically**, but enter any provided code at checkout.
+*   Some discounts **apply automatically**, but enter any provided code at checkout.
 
 ![Surfer SEO Coupon Code](https://github.com/SEO-Deals/Surfer-SEO-Coupon/blob/main/Img/5%20-%20%20Surfer%20SEO%20Coupon%20Code.png)
 
 **Step 4: Complete Your Purchase**
 
-    Enjoy **Surfer SEO’s premium tools** at a discounted price!
+*    Enjoy **Surfer SEO’s premium tools** at a discounted price!
 
 ![Surfer SEO Explore](https://github.com/SEO-Deals/Surfer-SEO-Coupon/blob/main/Img/6%20-%20%20Surfer%20SEO%20Explore.png)
 
